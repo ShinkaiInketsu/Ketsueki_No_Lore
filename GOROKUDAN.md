@@ -1,6 +1,6 @@
 
 
-# Nombre
+# Gorokudan
 Gorokudan (五六断)
 
 
