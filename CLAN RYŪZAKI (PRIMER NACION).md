@@ -1,6 +1,6 @@
 
 
-# Nombre del Clan
+# Clan Ryūzaki
 
 RYŪZAKI
 
