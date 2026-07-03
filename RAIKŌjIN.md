@@ -1,6 +1,6 @@
 
 
-# Nombre
+# Raikōjin
 
 Raikōjin (雷光神)
 
