@@ -1,7 +1,7 @@
 
 
 
-# Nombre del clan
+# clan tenmo
 
 Tenmo
 
