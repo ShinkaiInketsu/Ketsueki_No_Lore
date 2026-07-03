@@ -1,5 +1,5 @@
 
-# Nombre
+# Ketsuryū
 Ketsuryū (血竜)
 
 
