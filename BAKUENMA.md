@@ -1,5 +1,5 @@
 
-# Nombre
+# Bakuenma
 
 Bakuenma (爆炎魔)
 
