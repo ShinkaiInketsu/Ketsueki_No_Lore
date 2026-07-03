@@ -1,6 +1,6 @@
 
 
-# Nombre
+# Enrōkage
 
 Enrōkage(炎狼影)
 
