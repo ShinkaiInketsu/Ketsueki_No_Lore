@@ -33,7 +33,7 @@ Tecnica de desplazamiento (teletransporte)
 
 Es una tecnica poco comun dificil de aprender que requiere masomenos gasto de rekeikenkai para usarla correctamente debes aprender de tu entornor saber en donde te mueves y asi evitar quedar atrapado en una pared la forma mas facil es con una marca que aunque es mas efectiva y precisa casi siempre te juega en contra por lo facil de reconocer 
 
-Su creador fue : [[Minato Uzanagi]]
+Su creador fue : desconocido
 
 Su creación revoluciono todo lo que se conoce actualmente y es de los pocos usuarios en dominar esta tecnica al 100%
 
