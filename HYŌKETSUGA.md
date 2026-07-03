@@ -1,5 +1,5 @@
 
-# Nombre
+# Hyōketsuga
 
 Hyōketsuga (氷結牙)
 
