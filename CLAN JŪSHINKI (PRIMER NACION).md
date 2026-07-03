@@ -2,9 +2,9 @@
 
 
 
-# Nombre del Clan
+# Clan Jūshinki
 
-Jūshinki
+Jūshinki 
 
 
 
